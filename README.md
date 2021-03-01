@@ -1,5 +1,3 @@
-### 😋🍴🍤
-
 - blog: https://blog.ebiiim.com
 - doujin: https://nullpo-t.net
 
